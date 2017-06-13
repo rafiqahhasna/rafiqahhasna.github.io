@@ -1,9 +1,9 @@
 # **Rafiqah Hasna Sukma**
 Mahasiswi Ilmu Komputer IPB
 
-_Jl. Pinang Merah Raya No. 28\
-Taman Yasmin Bogor 16113\
-+6281311382155\
+_Jl. Pinang Merah Raya No. 28
+Taman Yasmin Bogor 16113
++6281311382155
 rafiqahsns@gmail.com_
 
 ## Pendidikan
